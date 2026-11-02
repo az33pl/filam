@@ -1,302 +1,297 @@
-# A
----
-## Aba Ginoong Maria
+# A  
+## Aba Ginoong Maria  
 Fr. Manoling V. Francisco, S.J.
 
-Aba Ginoong Maria, napupuno ka ng grasya,
-Ang Panginoon ay sumasaiyo.
-Bukod kang pinagpala sa babaeng lahat,
-At pinagpala naman ang 'yong anak na si Hesus.
-Santa Maria, Ina ng Diyos,
-Ipanalangin mo kaming makasalanan
-Ngayon at kung kami'y mamamatay.
-Amen.
+Aba Ginoong Maria, napupuno ka ng grasya,  
+Ang Panginoon ay sumasaiyo.  
+Bukod kang pinagpala sa babaeng lahat,  
+At pinagpala naman ang 'yong anak na si Hesus.  
+Santa Maria, Ina ng Diyos,  
+Ipanalangin mo kaming makasalanan  
+Ngayon at kung kami'y mamamatay.  
+Amen.  
 
-Ooh. Ooh. 
+Ooh. Ooh.   
 
-*\[English\]*
-*Hail Mary, full of grace,*
-*The Lord is with you.*
-*Blessed are you among women,*
-*And blessed is the fruit of your womb, Jesus.*
-*Holy Mary, Mother of God,*
-*Pray for us sinners*
-*Now and at the hour of our death.*
-*Amen.*
+*\[English\]*  
+*Hail Mary, full of grace,*  
+*The Lord is with you.*   
+*Blessed are you among women,*  
+*And blessed is the fruit of your womb, Jesus.*  
+*Holy Mary, Mother of God,*  
+*Pray for us sinners*  
+*Now and at the hour of our death.*  
+*Amen.*  
 
 ## Alleluia! Alleluia! Let the Holy Anthem Rise
+\[Verse 1\]  
+Alleluia! Alleluia!  
+Let the holy anthem rise,  
+And the choirs of heaven chant it  
+In the temple of the skies;  
+Let the mountains skip with gladness,  
+And the joyful valleys ring  
+With hosannas in the highest  
+To our Savior and our King!  
 
-\[Verse 1\]
-Alleluia! Alleluia!
-Let the holy anthem rise,
-And the choirs of heaven chant it
-In the temple of the skies;
-Let the mountains skip with gladness,
-And the joyful valleys ring
-With hosannas in the highest
-To our Savior and our King!
+\[Verse 2\]  
+Alleluia! Alleluia!  
+Like the sun from out the wave,  
+He has risen up in triumph  
+From the darkness of the grave.  
+He's the splendor of the nations,  
+He's the lamp of endless day;  
+He's the very Lord of glory  
+Who is risen up today!  
 
-\[Verse 2\]
-Alleluia! Alleluia!
-Like the sun from out the wave,
-He has risen up in triumph
-From the darkness of the grave.
-He's the splendor of the nations,
-He's the lamp of endless day;
-He's the very Lord of glory
-Who is risen up today!
-
-\[Verse 3\]
-Alleluia! Alleluia!
-Blessed Jesus, make us rise
-From the life of this corruption
-To the life that never dies.
-May your glory be our portion,
-When the days of time are past,
-And the dead shall be awakened
-By the trumpet's mighty blast!
+\[Verse 3\]  
+Alleluia! Alleluia!  
+Blessed Jesus, make us rise  
+From the life of this corruption  
+To the life that never dies.  
+May your glory be our portion,  
+When the days of time are past,  
+And the dead shall be awakened  
+By the trumpet's mighty blast!  
 
 
 ## Ama Namin
-Manoling Francisco S. J.
+Manoling Francisco S. J.   
 
-Ama namin, sumasalangit Ka.
-Sambahin ang ngalan Mo.
-Mapasaamin ang kaharian Mo.
-Sundin ang loob Mo dito sa lupa, para nang sa langit.
+Ama namin, sumasalangit Ka.  
+Sambahin ang ngalan Mo.  
+Mapasaamin ang kaharian Mo.  
+Sundin ang loob Mo dito sa lupa, para nang sa langit.  
 
-*\[English\]*
-*Our Father, who art in heaven.*
-*Hallowed be Thy name.*
-*Thy kingdom come.*
-*Thy will be done on earth, as it is in heaven.*
+*\[English\]*  
+*Our Father, who art in heaven.*  
+*Hallowed be Thy name.*  
+*Thy kingdom come.*  
+*Thy will be done on earth, as it is in heaven.*  
 
-Bigyan Mo po kami ngayon ng aming kakanin sa araw-araw,
-At patawarin Mo kami sa aming mga sala,
-Para nang pagpapatawad namin sa nagkakasala sa amin.
-At h'wag Mo kaming ipahintulot sa tukso,
-At iadya Mo kami sa lahat ng masama. Ooo.
+Bigyan Mo po kami ngayon ng aming kakanin sa araw-araw,  
+At patawarin Mo kami sa aming mga sala,  
+Para nang pagpapatawad namin sa nagkakasala sa amin.  
+At h'wag Mo kaming ipahintulot sa tukso,  
+At iadya Mo kami sa lahat ng masama. Ooo.  
 
-*\[English\]*
-*Give us this day our daily bread,*
-*And forgive us our trespasses,*
-*As we forgive those who trespass against us.*
-*And lead us not into temptation,*
-*But deliver us from all evil. Ooo.*
+*\[English\]*  
+*Give us this day our daily bread,*  
+*And forgive us our trespasses,*  
+*As we forgive those who trespass against us.*  
+*And lead us not into temptation,*  
+*But deliver us from all evil. Ooo.*  
 
 ### Sapagkat Sa ‘Yo Ang Kaharian
+Sapagkat Sa 'Yo ang kaharian, kapangyarihan, at kapurihan  
+Ngayon at magpakailanman, ngayon at magpakailanman.  
 
-Sapagkat Sa 'Yo ang kaharian, kapangyarihan, at kapurihan
-Ngayon at magpakailanman, ngayon at magpakailanman.
-
-*\[English\]*
-*For Yours is the kingdom,*
-*the power, and the glory* 
-*Now and forever, now and forever.*
+*\[English\]*  
+*For Yours is the kingdom,*  
+*the power, and the glory*   
+*Now and forever, now and forever.*  
 
 
 ## Amen
-Amen, amen, amen.
+Amen, amen, amen.  
 
 
 ## Amen (World Youth Day)
-Amen, Amen, Amen.
-Amen, Amen, Amen, Amen.
+Amen, Amen, Amen.  
+Amen, Amen, Amen, Amen.  
 
 
-## Ang Panginoo’y Darating
-Lucio San Pedro
+## Ang Panginoo’y Darating 
+Lucio San Pedro  
 
-\[Refrain\]
-Ang Panginoo'y darating kasama ng mga anghel.
-Kailanma'y 'di magdidilim 'pagkat laging magniningning
-ang liwanag Niya sa atin.
+\[Refrain\]  
+Ang Panginoo'y darating kasama ng mga anghel.  
+Kailanma'y 'di magdidilim 'pagkat laging magniningning  
+ang liwanag Niya sa atin.  
 
-*\[Refrain - English\]*
-*The Lord is coming together with the angels.*
-*It will never grow dark because His light*
-*Will always shine upon us.*
+*\[Refrain - English\]*  
+*The Lord is coming together with the angels.*  
+*It will never grow dark because His light*  
+*Will always shine upon us.*  
 
-\[Verse 1\]
-Halina, halina, kami ay harapin,
-Panginoon, Panginoong Pastol namin. (Refrain)
+\[Verse 1\]  
+Halina, halina, kami ay harapin,  
+Panginoon, Panginoong Pastol namin. (Refrain)  
 
-*\[Verse 1 - English\]*
-*Come, come, face us,*
-*Lord, our Lord Shepherd.* 
+*\[Verse 1 - English\]*  
+*Come, come, face us,*  
+*Lord, our Lord Shepherd.*   
 
-\[Verse 2\]
-Sa luklukan Mong Kerubin,
-Dinggin Mo ang aming hiling na kami'y 'Yong tubusin. (Refrain)
+\[Verse 2\]  
+Sa luklukan Mong Kerubin,  
+Dinggin Mo ang aming hiling na kami'y 'Yong tubusin. (Refrain)  
 
-*\[Verse 2 - English\]*
-*From Your Cherubim throne,*
-*Hear our prayer that You redeem us.* 
+*\[Verse 2 - English\]*  
+*From Your Cherubim throne,*  
+*Hear our prayer that You redeem us.*   
 
 
 ## Ang Pasko Ay Sumapit
-Vicente Rubi
+Vicente Rubi  
 
-\[Verse 1\]
-Ang Pasko ay sumapit, tayo ay mangagsiawit
-Ng magagandang himig dahil sa ang Diyos ay pag-ibig.
-Nang si Kristo'y isilang, may tatlong haring nagsidalaw,
-At ang bawat isa ay nagsipaghandog ng tanging alay. 
+\[Verse 1\]  
+Ang Pasko ay sumapit, tayo ay mangagsiawit  
+Ng magagandang himig dahil sa ang Diyos ay pag-ibig.  
+Nang si Kristo'y isilang, may tatlong haring nagsidalaw,  
+At ang bawat isa ay nagsipaghandog ng tanging alay.   
 
-*\[Verse 1 – English\]*
-*Christmas has arrived, let us sing*
-*Beautiful melodies because God is love.*
-*When Christ was born, three kings came to visit,*
-*And each one offered a special gift.* 
+*\[Verse 1 – English\]*  
+*Christmas has arrived, let us sing*  
+*Beautiful melodies because God is love.*  
+*When Christ was born, three kings came to visit,*  
+*And each one offered a special gift.*   
 
-\[Refrain\]
-Bagong taon ay mag-bagong buhay,
-Nang lumigaya ang ating bayan.
-Tayo'y magsikap upang makamtan
-Natin ang kasaganaan.
+\[Refrain\]  
+Bagong taon ay mag-bagong buhay,  
+Nang lumigaya ang ating bayan.  
+Tayo'y magsikap upang makamtan  
+Natin ang kasaganaan.  
 
-*\[Refrain - English\]*
-*In the New Year, let us lead new lives,*
-*So that our nation may be happy.*
-*Let us strive so that we may attain prosperity.*
+*\[Refrain - English\]*  
+*In the New Year, let us lead new lives,*  
+*So that our nation may be happy.*  
+*Let us strive so that we may attain prosperity.*  
+ 
+\[Verse 2\]  
+Tayo'y mangagsiawit, habang ang mundo'y tahimik,  
+Ang araw ay sumapit ng Sanggol na dulot ng langit.  
+Tayo'y magmahalan, ating sundin ang gintong aral,  
+At magbuhat ngayon, kahit hindi Pasko ay magbigayan! (Refrain)  
 
-\[Verse 2\]
-Tayo'y mangagsiawit, habang ang mundo'y tahimik,
-Ang araw ay sumapit ng Sanggol na dulot ng langit.
-Tayo'y magmahalan, ating sundin ang gintong aral,
-At magbuhat ngayon, kahit hindi Pasko ay magbigayan! (Refrain)
+*\[Verse 2 - English\]*  
+*Let us sing while the world is quiet,*  
+*The day has arrived of the Infant sent from heaven.*  
+*Let us love one another, let us follow the golden rule,*  
+*And from now on, even when it is not Christmas, let us keep giving!*   
 
-*\[Verse 2 - English\]*
-*Let us sing while the world is quiet,*
-*The day has arrived of the Infant sent from heaven.*
-*Let us love one another, let us follow the golden rule,*
-*And from now on, even when it is not Christmas, let us keep giving!* 
+\[Verse 3\]  
+Tayo'y mangagsiawit, habang ang mundo'y tahimik,  
+Ang araw ay sumapit ng Sanggol na dulot ng langit.  
+Tayo'y magmahalan, ating sundin ang gintong aral,  
+At magbuhat ngayon, kahit hindi Pasko ay magbigayan!  
 
-\[Verse 3\]
-Tayo'y mangagsiawit, habang ang mundo'y tahimik,
-Ang araw ay sumapit ng Sanggol na dulot ng langit.
-Tayo'y magmahalan, ating sundin ang gintong aral,
-At magbuhat ngayon, kahit hindi Pasko ay magbigayan!
+*\[Verse 3 - English\]*  
+*Let us sing while the world is quiet,*  
+*The day has arrived of the Infant sent from heaven.*  
+*Let us love one another, let us follow the golden rule,*  
+*And from now on, even when it is not Christmas, let us keep giving!*  
 
-*\[Verse 3 - English\]*
-*Let us sing while the world is quiet,*
-*The day has arrived of the Infant sent from heaven.*
-*Let us love one another, let us follow the golden rule,*
-*And from now on, even when it is not Christmas, let us keep giving!*
+\[Coda\]  
+At magbuhat ngayon, kahit hindi Pasko ay magbigayan!  
 
-\[Coda\]
-At magbuhat ngayon, kahit hindi Pasko ay magbigayan!
-
-*\[Coda - English\]*
-*And from now on, even when it is not Christmas, let us keep giving!*
+*\[Coda - English\]*  
+*And from now on, even when it is not Christmas, let us keep giving!*  
 
 
 ## Ang Tanging Alay Ko
-Raymund Remo
+Raymund Remo  
 
-\[Verse 1\]
-Salamat sa Iyo, aking Panginoong Hesus.
-Ako'y inibig mo at inangking lubos. 
+\[Verse 1\]  
+Salamat sa Iyo, aking Panginoong Hesus.   
+Ako'y inibig mo at inangking lubos.   
 
-*\[Verse 1 - English\]*
-*Thank You, my Lord Jesus.*
-*You loved me and claimed me completely.* 
+*\[Verse 1 - English\]*  
+*Thank You, my Lord Jesus.*  
+*You loved me and claimed me completely.*   
 
-\[Refrain\]
-Ang tanging alay ko sa 'Yo, aking Ama,
-ang buong buhay ko, puso't kaluluwa.
-'Di na makakayanang makapagkaloob
-mamahaling hiyas ni gintong nilukob.
+\[Refrain\]  
+Ang tanging alay ko sa 'Yo, aking Ama,  
+ang buong buhay ko, puso't kaluluwa.  
+'Di na makakayanang makapagkaloob  
+mamahaling hiyas ni gintong nilukob.  
 
-Ang aking dalangin, O Dios, ay tanggapin,
-ang buong buhay ko nawa'y gamitin.
-Ito lamang, Ama, wala nang iba pa,
-akong hinihiling.
+Ang aking dalangin, O Dios, ay tanggapin,  
+ang buong buhay ko nawa'y gamitin.  
+Ito lamang, Ama, wala nang iba pa,  
+akong hinihiling.  
+ 
+*\[Refrain - English\]*  
+*My only offering to You, my Father,*  
+*is my whole life, heart, and soul.*  
+*I can no longer afford to give*  
+*precious jewels or gold overlaid.*  
 
-*\[Refrain - English\]*
-*My only offering to You, my Father,*
-*is my whole life, heart, and soul.*
-*I can no longer afford to give*
-*precious jewels or gold overlaid.*
+*My prayer, O God, is for You to accept,*  
+*may my whole life be used (in Your service).*  
+*This alone, Father, nothing else,*  
+*is what I ask.*  
 
-*My prayer, O God, is for You to accept,*
-*may my whole life be used (in Your service).*
-*This alone, Father, nothing else,*
-*is what I ask.*
+\[Verse 2\]  
+'Di ko akalain ako'y Iyong bigyang-pansin.  
+Ang taong tulad ko 'di dapat mahalin. (Refrain)  
 
-\[Verse 2\]
-'Di ko akalain ako'y Iyong bigyang-pansin.
-Ang taong tulad ko 'di dapat mahalin. (Refrain)
-
-*\[Verse 2 - English\]*
-*I never expected You would pay attention to me.*
-*A person like me who does not deserve to be loved.* 
-
-
-
-## Anima Christi
-
-\[Verse 1\]
-Soul of Christ, sanctify me.
-Body of Christ, come and save me
-Blood of Christ, inebriate me.
-Passion of Christ, strengthen me. *(Refrain)*
-
-\[Refrain\]
-O Good Jesus, hear me.
-O Good Jesus, hear me.
-Within Your wounds hide me.
-O Good Jesus, hear me.
-
-\[Verse 2\]
-From my foes, You defend me.
-At my death, will You call me,
-That I may praise Your Name in heaven
-With all Your Saints, evermore. *(Refrain)*
+*\[Verse 2 - English\]*  
+*I never expected You would pay attention to me.*  
+*A person like me who does not deserve to be loved.*   
 
 
-## Ave Maria
-Fruto Ll. Ramirez
 
-\[Verse 1\]
-Ave Maria, gratia plena,
-Dominus tecum, Benedicta tu;
-Benedicta tu in mulieribus,
-Et benedictus fructus ventris tui, Jesu.
+## Anima Christi  
+\[Verse 1\]  
+Soul of Christ, sanctify me.  
+Body of Christ, come and save me  
+Blood of Christ, inebriate me.  
+Passion of Christ, strengthen me. *(Refrain)*  
 
-*\[Verse 1 – English\]*
-*Hail Mary, full of grace*
-*The Lord is with thee*
-*Blessed art thou among women*
-*And blessed is the fruit of thy womb, Jesus.*
+\[Refrain\]  
+O Good Jesus, hear me.  
+O Good Jesus, hear me.  
+Within Your wounds hide me.  
+O Good Jesus, hear me.  
 
-\[Verse 2\]
-Sancta Maria, Mater Dei,
-Ora pro nobis, peccatoribus,
-Nunc et in hora mortis nostrae.
+\[Verse 2\]  
+From my foes, You defend me.  
+At my death, will You call me,  
+That I may praise Your Name in heaven  
+With all Your Saints, evermore. *(Refrain)*  
 
-*\[Verse 2 - English\]*
-*Holy Mary, Mother of God*
-*Pray for us sinners*
-*Now and at the hour of our death*
 
-\[Verse 3\]
-Ave Maria, gratia plena,
-Dominus tecum, Benedicta tu;
-Benedicta tu in mulieribus,
-Et benedictus fructus ventris tui, Jesu.
+## Ave Maria  
+Fruto Ll. Ramirez  
 
-*\[Verse 3 – English\]*
-*Hail Mary, full of grace*
-*The Lord is with thee*
-*Blessed art thou among women*
-*And blessed is the fruit of thy womb, Jesus.*
+\[Verse 1\]  
+Ave Maria, gratia plena,  
+Dominus tecum, Benedicta tu;  
+Benedicta tu in mulieribus,  
+Et benedictus fructus ventris tui, Jesu.  
 
-Amen.
+*\[Verse 1 – English\]*  
+*Hail Mary, full of grace*  
+*The Lord is with thee*  
+*Blessed art thou among women*  
+*And blessed is the fruit of thy womb, Jesus.*  
+
+\[Verse 2\]  
+Sancta Maria, Mater Dei,  
+Ora pro nobis, peccatoribus,  
+Nunc et in hora mortis nostrae.  
+
+*\[Verse 2 - English\]*  
+*Holy Mary, Mother of God*  
+*Pray for us sinners*  
+*Now and at the hour of our death*  
+
+\[Verse 3\]  
+Ave Maria, gratia plena,  
+Dominus tecum, Benedicta tu;  
+Benedicta tu in mulieribus,  
+Et benedictus fructus ventris tui, Jesu.  
+
+*\[Verse 3 – English\]*  
+*Hail Mary, full of grace*  
+*The Lord is with thee*  
+*Blessed art thou among women*  
+*And blessed is the fruit of thy womb, Jesus.*  
+
+Amen.  
 
 
 # B
----
 ## Blessed are You/Mapapalad Kayo
 Ricky Manalo
 
