@@ -2593,11 +2593,11 @@ In realms of clearer light
 We may behold You as You are  
 In full and endless sight.  
 
-\[Verse 5\]
-We walk by faith, and not by sight:
-No gracious words we hear
-Of Him who spoke as none e'er spoke,
-But we believe Him near.
+\[Verse 5\]  
+We walk by faith, and not by sight:  
+No gracious words we hear  
+Of Him who spoke as none e'er spoke,  
+But we believe Him near.  
 
 
 ## With One Voice
